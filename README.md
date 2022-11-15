@@ -4,7 +4,7 @@
 <h3>
 ♡ ☻ ♡
 </h3>
-<h3><i>amor fati</i></h3>
+<h3><i>looking up at the stars suddenly dwarfed my own troubles</i></h3>
 <h3>
 ☻ ♡ ☻
 </h3>
